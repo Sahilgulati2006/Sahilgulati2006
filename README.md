@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [sahilgulati-resume.tiiny.site](sahilgulati-resume.tiiny.site)
 
-- ⚡ Fun fact **I love reading Books, really passionate aboout finance and the stock markets across the globe, and am a DIY enthusiast.**
+- ⚡ Fun fact **Avid reader | 💹 Passionate about global finance and stock markets | 🛠️ DIY enthusiast who loves building and creating innovative solutions. Exploring the intersection of technology and investing."**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
