@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **sahilgulati241@gmail.com**
 
-- 📄 Know about my experiences [sahilgulati-resume.tiiny.site](sahilgulati-resume.tiiny.site)
-
 - ⚡ Fun fact: **Avid reader | 💹 Passionate about global finance and stock markets | 🛠️ DIY enthusiast who loves building and creating innovative solutions. Exploring the intersection of technology and investing."**
 
 <h3 align="left">Connect with me:</h3>
